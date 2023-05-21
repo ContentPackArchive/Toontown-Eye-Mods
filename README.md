@@ -5,7 +5,7 @@ A pack of various eye color mods created for Toontown Online.
 
 "Eyes 2" created by twobeceltic
 
-"Eyessss" created by an unknown person.
+"Eyessss" created by presumably Twilight McNight
 
 # Information
 
